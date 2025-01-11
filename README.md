@@ -66,4 +66,4 @@ Cherry Studio 不仅仅是一款软件，更是您通往 GPT 技术无限可能�
 
 ### StarHistory
 
-![图片](https://urlscan.io/liveshot/?width=1300\&height=620\&url=https://cherrystarhistory.ocool.online/)
+![图片](https://urlscan.io/liveshot/?width=1350&height=620&url=https://cherrystarhistory.ocool.online/)
